@@ -5,7 +5,7 @@
 Zoom: https://ucsd.zoom.us/s/797074102
 
 Zoom Recordings:
-coming soon
+https://ucsd.zoom.us/rec/share/6NF_IKPt-VxOUJWU-kf9Rb8lQILEeaa81igdqPMEnUdMIfkwsvQl4Xu5Q5KSsSFD (Lecture 20)
 
 
 Videos:
